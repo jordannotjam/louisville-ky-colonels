@@ -2,6 +2,7 @@
 obscure sports
 
 ##History
+
 The Kentucky Colonels were a member of the
 American Basketball Association for all of
 the league's nine years. The name is
